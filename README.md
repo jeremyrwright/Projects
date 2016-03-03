@@ -1,5 +1,5 @@
 ### Projects and Ideas
 ***
 
-A collection of projects and ideas that I want to work on.
+Future location of ideas and projects that I'd like to work on.
 
